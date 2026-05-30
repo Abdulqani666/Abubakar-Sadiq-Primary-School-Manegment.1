@@ -1,0 +1,1 @@
+# Abubakar-Sadiq-Primary-School-Manegment.1
